@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Temporary website
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+To be completed ...
